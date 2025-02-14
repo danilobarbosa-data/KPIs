@@ -1,0 +1,1 @@
+Esses indicadores devem ser monitorados regularmente para ajustar estratégias e otimizar resultados, garantindo melhor eficiência e maior retorno sobre o investimento. Além disso, entender o perfil dos clientes, o comportamento de gastos e padrões de compra permite segmentar ações de forma mais assertiva.
